@@ -1,1 +1,2 @@
 # Co-jest-przysz-o-ci-w-erze-21-wieku-i-erze-dalszych-wiek-w-przysz-o-ci.
+Przyszłością jest super vois telefon smart fon z radio drukarką kwantową 3D i 4D. Z aplikacją waymu auto autonomiczne waymu, dron autonomiczny osobowy waymu, stake kosmiczny autonomiczny AI statek kosmiczny osobowy waymu z kodem z git hub różnych technologi i pojazdów osobowych autonomicznych z asystentem google. To jest szczyt technologi przyszłości z garażami na te pojazdy w procesorze super vois telefon. 
